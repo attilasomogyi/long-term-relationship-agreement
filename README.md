@@ -114,6 +114,26 @@ We will make an effort to manage our time effectively and balance our relationsh
 
 We will make an effort to align our values and beliefs, and will respect each other's differences.
 
+## Mental and physical health
+
+We will prioritize our mental and physical health and will make an effort to support each other in maintaining a healthy lifestyle.
+
+## Vacation and time off
+
+We will make an effort to plan and take vacations and time off together, and will also respect each other's need for alone time or time with friends and family.
+
+## Personal growth and development
+
+We will encourage and support each other's personal growth and development, including pursuing hobbies, education, and career goals
+
+## Fun and leisure
+
+We will make an effort to incorporate fun and leisure activities in our relationship and will also respect each other's interests and passions.
+
+## Conflict resolution
+
+We will establish a plan for how we will handle conflicts that may arise in our relationship, including a process for discussing and resolving issues in a calm and respectful manner.
+
 ## Signatures
 
 We will sign this agreement to signify our commitment to following through with the terms we have outlined.
