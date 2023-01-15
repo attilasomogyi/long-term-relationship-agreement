@@ -28,6 +28,8 @@ could jeopardize the trust in our relationship. We will also respect
 each other’s privacy and not go through each other’s personal belongings
 without permission.
 
+This means that all parties in the relationship will remain committed and loyal to one another, and will not engage in any behavior that could undermine the trust in their relationship. They will also respect each other's personal boundaries, including not intruding on each other's privacy by going through personal belongings without permission. This can help to maintain the trust and mutual respect that are necessary for a healthy and long-term relationship.
+
 Respect
 -------
 
