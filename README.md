@@ -18,7 +18,7 @@ We will treat each other with respect and kindness and refrain from any verbal o
 
 We will make an effort to compromise on any issues or disagreements that may arise in our relationship. We will also work together to find solutions that are fair and equitable for both of us.
 
-## Emotional support
+## Emotional Support
 
 We will provide emotional support for each other and be there for each other during difficult times. We will also make an effort to celebrate each other's accomplishments and be a source of positivity in each other's lives.
 
@@ -34,27 +34,27 @@ In case of any conflict, we will try to resolve it by talking openly and calmly.
 
 We will discuss and establish a plan for managing our finances together, including how we will handle expenses, savings, and investments.
 
-## Household responsibilities
+## Household Responsibilities
 
 We will divide and assign household tasks and responsibilities fairly and make an effort to help each other with daily chores.
 
-## Relationship goals
+## Relationship Goals
 
 We will set relationship goals together and make an effort to work towards achieving them.
 
-## Personal growth
+## Personal Growth
 
 We will encourage and support each other's personal growth and development, including pursuing hobbies, education, and career goals.
 
-## Quality time
+## Quality Time
 
 We will make an effort to spend quality time together, including setting aside time for date nights, weekend trips, and other activities that we both enjoy.
 
-## Family and friends
+## Family and Friends
 
 We will make an effort to maintain healthy relationships with our families and friends, and will also work to establish a balance between alone time, time with each other and time with our friends and family.
 
-## Future planning
+## Future Planning
 
 We will discuss and make plans for our future together, including career, family, and retirement.
 
@@ -62,35 +62,35 @@ We will discuss and make plans for our future together, including career, family
 
 We will discuss and establish a plan for maintaining a healthy and satisfying sexual relationship, including discussing any boundaries or needs we may have.
 
-## Personal space
+## Personal Space
 
 We will respect each other's need for personal space and alone time, and will make an effort to establish a balance between time spent together and time spent apart.
 
-## Social media and technology
+## Social Media and Technology
 
 We will establish boundaries and guidelines for the use of social media and technology in our relationship, including how much time we will spend on our devices, how we will communicate with each other through technology, and what types of content we will share online.
 
-## Conflict resolution plan
+## Conflict Resolution Plan
 
 We will establish a plan for how we will handle conflicts that may arise in our relationship, including a process for discussing and resolving issues in a calm and respectful manner.
 
-## Relationship counseling
+## Relationship Counseling
 
 We will be open to seeking relationship counseling if needed to help resolve any issues that may arise in our relationship.
 
-## Relationship boundaries
+## Relationship Boundaries
 
 We will establish and respect boundaries in our relationship, including physical, emotional, and mental boundaries.
 
-## Shared activities
+## Shared Activities
 
 We will make an effort to engage in shared activities that we both enjoy and will also respect each other's interests and passions.
 
-## Problem-solving
+## Problem Solving
 
 We will approach problem-solving in a constructive way, and will avoid blaming, criticizing or attacking each other.
 
-## Decision-making
+## Decision Making
 
 We will make decisions together, taking into account each other's needs and opinions.
 
@@ -106,77 +106,77 @@ We will be honest with each other in all aspects of our relationship, and will n
 
 We will practice forgiveness in our relationship and will make an effort to let go of past hurts and mistakes.
 
-## Time management
+## Time Management
 
 We will make an effort to manage our time effectively and balance our relationship with our other responsibilities and commitments.
 
-## Shared values
+## Shared Values
 
 We will make an effort to align our values and beliefs, and will respect each other's differences.
 
-## Mental and physical health
+## Mental and Physical Health
 
 We will prioritize our mental and physical health and will make an effort to support each other in maintaining a healthy lifestyle.
 
-## Vacation and time off
+## Vacation and Time off
 
 We will make an effort to plan and take vacations and time off together, and will also respect each other's need for alone time or time with friends and family.
 
-## Personal growth and development
+## Personal Growth and Development
 
 We will encourage and support each other's personal growth and development, including pursuing hobbies, education, and career goals
 
-## Fun and leisure
+## Fun and Leisure
 
 We will make an effort to incorporate fun and leisure activities in our relationship and will also respect each other's interests and passions.
 
-## Conflict resolution
+## With Conflict Resolution
 
 We will establish a plan for how we will handle conflicts that may arise in our relationship, including a process for discussing and resolving issues in a calm and respectful manner.
 
-## Sanctions in case of non-compliance with the agreement
+## Sanctions in case of non-compliance with the Agreement
 
 ### With Communication
 
 One partner may express their dissatisfaction with the other's behavior and ask for change through communication.
 
-### Time-out or space
+### Time out or Space
 
 One partner may take some time away from the relationship, either physically or emotionally, in order to process their feelings and address the issues.
 
-### Setting boundaries
+### Setting Boundaries
 
 One partner may set clear boundaries and communicate them to the other in order to establish a more healthy and positive relationship.
 
-### Counseling or therapy
+### Counseling or Therapy
 
 One or both partners may seek professional help to address and work through any issues in the relationship.
 
-### Changing habits or behavior
+### Changing Habits or Behavior
 
 One partner may make an effort to change their habits or behavior in order to improve the relationship.
 
-### Compromise and negotiation
+### Compromise and Negotiation
 
 Partners may work together to find a compromise or solution that addresses the concerns of both parties.
 
-### Financial sanctions
+### Financial Sanctions
 
 In a marriage or partnership, one partner may decide to withhold financial support or change the financial arrangements of the relationship as a way of addressing issues.
 
-### Social sanctions
+### Social Sanctions
 
 One partner may limit their social interactions with the other as a way of addressing issues in the relationship.
 
-### Emotional sanctions
+### Emotional Sanctions
 
 One partner may limit their emotional investment in the relationship or withdraw emotionally as a way of addressing issues.
 
-### Agreeing on a plan
+### Agreeing on a Plan
 
 Both partners can work together to come up with a plan that addresses the issues in the relationship and then work on implementing it.
 
-### Taking a break
+### Taking a Break
 
 Both partners can agree to take a break from the relationship for a certain period of time in order to work on themselves and address any issues.
 
@@ -188,23 +188,23 @@ One partner can apologize for the wrongs committed and take steps to make amends
 
 One partner can forgive the other and work on moving forward in the relationship.
 
-### Changing the dynamics of the relationship
+### Changing the Dynamics of the Relationship
 
 Both partners can agree to change the dynamics of the relationship and work on building a new and healthier relationship.
 
-### Written agreements
+### Written Agreements
 
 Both partners can agree to written agreements that outline specific behaviors, expectations and consequences in case of non-compliance
 
-### Collaborative problem solving
+### Collaborative Problem Solving
 
 Both partners can work together to identify the problem, and come up with possible solutions and determine what works best for both of them
 
-### Establishing trust
+### Establishing Trust
 
 One partner may work on rebuilding trust in the relationship by being transparent, reliable, and accountable for their actions
 
-### Ending the relationship
+### Ending the Relationship
 
 If the issues are not resolved, one partner may choose to end the relationship.
 
@@ -215,3 +215,7 @@ We will sign this agreement to signify our commitment to following through with 
 ## Duration and Renewal
 
 This agreement will be effective from the date it is signed and will be reviewed and renewed annually.
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_(Partner 1)
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_(Partner 2)
