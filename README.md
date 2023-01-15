@@ -30,10 +30,6 @@ We will respect each other's personal boundaries and make an effort to understan
 
 In case of any conflict, we will try to resolve it by talking openly and calmly. We will also avoid any name-calling, blame-shifting, and violence.
 
-## Duration and Renewal
-
-This agreement will be effective from the date it is signed and will be reviewed and renewed annually.
-
 ## Finances
 
 We will discuss and establish a plan for managing our finances together, including how we will handle expenses, savings, and investments.
@@ -61,10 +57,6 @@ We will make an effort to maintain healthy relationships with our families and f
 ## Future planning
 
 We will discuss and make plans for our future together, including career, family, and retirement.
-
-## Signatures
-
-We will sign this agreement to signify our commitment to following through with the terms we have outlined.
 
 ## Intimacy
 
@@ -117,3 +109,15 @@ We will practice forgiveness in our relationship and will make an effort to let 
 ## Time management
 
 We will make an effort to manage our time effectively and balance our relationship with our other responsibilities and commitments.
+
+## Shared values
+
+We will make an effort to align our values and beliefs, and will respect each other's differences.
+
+## Signatures
+
+We will sign this agreement to signify our commitment to following through with the terms we have outlined.
+
+## Duration and Renewal
+
+This agreement will be effective from the date it is signed and will be reviewed and renewed annually.
