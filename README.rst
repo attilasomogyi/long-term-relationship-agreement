@@ -56,6 +56,8 @@ other during difficult times. We will also make an effort to celebrate
 each other’s accomplishments and be a source of positivity in each
 other’s lives.
 
+This means that all parties in the relationship will provide emotional support for one another and be there for each other during difficult times. They will also make an effort to celebrate each other's accomplishments and be a positive influence in each other's lives. This can help to create a supportive and nurturing environment in the relationship, and can be essential to maintaining a strong and long-term relationship. Emotional support, celebrating each other's achievements and being positive can help to improve the overall well-being of both parties and can foster a deeper connection and intimacy in the relationship.
+
 Boundaries
 ----------
 
