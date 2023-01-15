@@ -37,6 +37,8 @@ We will treat each other with respect and kindness and refrain from any
 verbal or physical abuse. We will also respect each other’s opinions and
 make an effort to understand each other’s perspectives.
 
+This means that all parties in the relationship will treat each other with respect and kindness, and will refrain from any verbal or physical abuse. They will also respect each other's opinions, and make an effort to understand and consider each other's perspectives, even if they differ. By treating each other with respect, kindness, and empathy, it can help to build a strong and healthy long-term relationship.
+
 Compromise
 ----------
 
