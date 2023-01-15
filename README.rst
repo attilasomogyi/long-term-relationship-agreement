@@ -18,6 +18,8 @@ effort to actively listen to one another. We will also establish a
 regular time to check in with each other and discuss any issues or
 concerns.
 
+This means that all parties involved in the communication will be transparent and truthful in their words and actions, will make an effort to actively listen and consider each other's perspectives, and will establish a regular time to check in and discuss any issues or concerns that may arise in the long-term relationship. This can help to ensure that all parties are on the same page, address any potential problems before they become major issues, and maintain a healthy and productive relationship over time.
+
 Trust
 -----
 
