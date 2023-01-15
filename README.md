@@ -134,6 +134,80 @@ We will make an effort to incorporate fun and leisure activities in our relation
 
 We will establish a plan for how we will handle conflicts that may arise in our relationship, including a process for discussing and resolving issues in a calm and respectful manner.
 
+## Sanctions in case of non-compliance with the agreement
+
+### With Communication
+
+One partner may express their dissatisfaction with the other's behavior and ask for change through communication.
+
+### Time-out or space
+
+One partner may take some time away from the relationship, either physically or emotionally, in order to process their feelings and address the issues.
+
+### Setting boundaries
+
+One partner may set clear boundaries and communicate them to the other in order to establish a more healthy and positive relationship.
+
+### Counseling or therapy
+
+One or both partners may seek professional help to address and work through any issues in the relationship.
+
+### Changing habits or behavior
+
+One partner may make an effort to change their habits or behavior in order to improve the relationship.
+
+### Compromise and negotiation
+
+Partners may work together to find a compromise or solution that addresses the concerns of both parties.
+
+### Financial sanctions
+
+In a marriage or partnership, one partner may decide to withhold financial support or change the financial arrangements of the relationship as a way of addressing issues.
+
+### Social sanctions
+
+One partner may limit their social interactions with the other as a way of addressing issues in the relationship.
+
+### Emotional sanctions
+
+One partner may limit their emotional investment in the relationship or withdraw emotionally as a way of addressing issues.
+
+### Agreeing on a plan
+
+Both partners can work together to come up with a plan that addresses the issues in the relationship and then work on implementing it.
+
+### Taking a break
+
+Both partners can agree to take a break from the relationship for a certain period of time in order to work on themselves and address any issues.
+
+### Apology
+
+One partner can apologize for the wrongs committed and take steps to make amends.
+
+### With Forgiveness
+
+One partner can forgive the other and work on moving forward in the relationship.
+
+### Changing the dynamics of the relationship
+
+Both partners can agree to change the dynamics of the relationship and work on building a new and healthier relationship.
+
+### Written agreements
+
+Both partners can agree to written agreements that outline specific behaviors, expectations and consequences in case of non-compliance
+
+### Collaborative problem solving
+
+Both partners can work together to identify the problem, and come up with possible solutions and determine what works best for both of them
+
+### Establishing trust
+
+One partner may work on rebuilding trust in the relationship by being transparent, reliable, and accountable for their actions
+
+### Ending the relationship
+
+If the issues are not resolved, one partner may choose to end the relationship.
+
 ## Signatures
 
 We will sign this agreement to signify our commitment to following through with the terms we have outlined.
