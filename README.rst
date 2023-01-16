@@ -73,6 +73,8 @@ In case of any conflict, we will try to resolve it by talking openly and
 calmly. We will also avoid any name-calling, blame-shifting, and
 violence.
 
+It means that in the event of any conflicts or disagreements that may arise in the relationship, both parties will work to address and resolve them through open and calm communication, rather than resorting to harmful or destructive behaviors such as name-calling, blame-shifting, or violence. This approach is focused on finding a solution and maintaining the mutual respect, trust and healthy communication that form the foundation of long-term relationships. It also means that both parties will avoid to use any kind of physical or verbal abuse to solve conflicts.
+
 Finances
 --------
 
