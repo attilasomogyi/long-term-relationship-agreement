@@ -64,6 +64,8 @@ Boundaries
 We will respect each other’s personal boundaries and make an effort to
 understand and respect each other’s needs.
 
+It means that both parties in the relationship will be mindful of and adhere to each other's boundaries, and actively work to understand and accommodate each other's needs and desires in order to maintain a healthy, long-term relationship. This includes being considerate and respectful of each other's physical, emotional, and mental well-being, and making an effort to communicate openly and honestly to ensure that both parties feel heard and understood.
+
 Conflict Resolution
 -------------------
 
