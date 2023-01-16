@@ -89,6 +89,8 @@ Household Responsibilities
 We will divide and assign household tasks and responsibilities fairly
 and make an effort to help each other with daily chores.
 
+It means that the parties involved in the relationship will divide and assign household tasks and responsibilities in a fair and equal manner, and will make an effort to help each other with daily chores. This may include things like cooking, cleaning, laundry, and other household tasks that need to be done on a regular basis. It implies that the parties are willing to work together as a team to maintain a comfortable home environment and that they understand the importance of sharing responsibilities in order to make the relationship work in the long term.
+
 Relationship Goals
 ------------------
 
