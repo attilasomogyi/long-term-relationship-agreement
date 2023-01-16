@@ -81,6 +81,8 @@ Finances
 We will discuss and establish a plan for managing our finances together,
 including how we will handle expenses, savings, and investments.
 
+It means that the parties involved in the relationship will work together to plan and manage their financial resources. This may include deciding how to handle expenses, setting savings goals, and making investment decisions in order to secure the financial future of the relationship. It implies that the parties have a long-term commitment towards the relationship and are willing to make financial decisions together for the betterment of their future.
+
 Household Responsibilities
 --------------------------
 
