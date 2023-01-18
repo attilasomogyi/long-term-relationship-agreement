@@ -123,6 +123,8 @@ We will make an effort to maintain healthy relationships with our
 families and friends, and will also work to establish a balance between
 alone time, time with each other and time with our friends and family.
 
+This means that all parties in the relationship will make an effort to maintain healthy relationships with their families and friends, and will also strive to establish a balance between alone time, time with each other, and time with their friends and family. This balance can help to maintain a healthy and fulfilling relationship, as well as create a supportive network of people around the couple. This can be especially important in a long-term relationship, as it can help to prevent feelings of isolation and loneliness, and also provide a sense of security and belonging. By having a balance of time with one another and time with friends and family, it can help to maintain a healthy relationship dynamic, and also strengthen the bond between the couple.
+
 Future Planning
 ---------------
 
