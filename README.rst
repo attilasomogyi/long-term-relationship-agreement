@@ -97,6 +97,8 @@ Relationship Goals
 We will set relationship goals together and make an effort to work
 towards achieving them.
 
+It means that the parties involved in the relationship will set goals together, both for the relationship and for themselves as individuals, and will make an effort to work towards achieving them. This may include things like improving communication, resolving conflicts, growing emotionally, and strengthening the bond between the partners. It implies that both parties are committed to making the relationship work and are willing to put in effort towards achieving the goals that they have set together to ensure the success of the relationship in the long term.
+
 Personal Growth
 ---------------
 
