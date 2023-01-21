@@ -159,6 +159,8 @@ and technology in our relationship, including how much time we will
 spend on our devices, how we will communicate with each other through
 technology, and what types of content we will share online.
 
+This means that all parties in the relationship will establish boundaries and guidelines for the use of social media and technology in their relationship. These boundaries might include how much time each person will spend on their devices, how they will communicate with each other through technology, and what types of content they will share online. By establishing these guidelines, it can help to avoid conflicts or misunderstandings that can arise from excessive use of technology or social media, and it can help to maintain a healthy balance between digital communication and in-person interactions. It also helps to ensure that both parties are on the same page regarding the use of technology in the relationship and it can help to prevent issues such as invasion of privacy, sharing sensitive information, or crossing boundaries. By having these guidelines, it can help to create a more secure and healthy environment for the relationship and it can help to foster a deeper level of trust and understanding between the partners.
+
 Conflict Resolution Plan
 ------------------------
 
