@@ -131,6 +131,8 @@ Future Planning
 We will discuss and make plans for our future together, including
 career, family, and retirement.
 
+This means that all parties in the relationship will have open and honest discussions about their future together, including their career aspirations, plans for starting a family and retirement plans. This can help to ensure that both parties are on the same page and have a shared understanding of what they want their future to look like. It can also help to identify and address any potential roadblocks or concerns that may arise and work together to find solutions that align with both of their goals. This kind of discussions can help to build a strong foundation for a long-term relationship and ensure that both parties are moving forward in the same direction. By discussing and planning for the future together, it can help to create a sense of stability, security and shared purpose in the relationship.
+
 Intimacy
 --------
 
