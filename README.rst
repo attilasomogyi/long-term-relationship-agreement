@@ -248,11 +248,15 @@ Shared Values
 We will make an effort to align our values and beliefs, and will respect
 each other’s differences.
 
+   This means that all parties in the relationship will make an effort to align their values and beliefs and will respect each other's differences. This can include things like discussing and understanding each other's values and beliefs, working to find common ground and accepting that not all beliefs and values may be the same. By aligning values and beliefs, it can help to ensure that both parties feel heard and respected in the relationship, and can help to prevent misunderstandings or hurt feelings. It can also help to create a sense of shared purpose and identity within the relationship. By respecting each other's differences, it can help to ensure that both parties feel comfortable and respected in the relationship, and can help to prevent misunderstandings or hurt feelings. It can also help to maintain a healthy balance between the needs of the relationship and the needs of each individual. By aligning values and beliefs and respecting each other's differences, it can also help to build trust and understanding between the partners and can foster a deeper level of intimacy and connection in the long-term.
+
 Mental and Physical Health
 --------------------------
 
 We will prioritize our mental and physical health and will make an
 effort to support each other in maintaining a healthy lifestyle.
+
+   This means that all parties in the relationship will prioritize their mental and physical health and will make an effort to support each other in maintaining a healthy lifestyle. This can include things like eating well, exercising regularly, getting enough sleep, managing stress, and taking care of overall well-being. By prioritizing mental and physical health, it can help to ensure that both parties feel good about themselves and can help to prevent misunderstandings or hurt feelings. It can also help to maintain a healthy balance between the needs of the relationship and the needs of each individual. By supporting each other in maintaining a healthy lifestyle, it can also help to build trust and understanding between the partners and can foster a deeper level of intimacy and connection in the long-term. It can also help to create a sense of shared purpose and identity within the relationship and can help to foster a deeper level of respect and admiration for one another. Being supportive in each other's mental and physical health can also help to build resilience and sense of security in the relationship.
 
 Vacation and Time off
 ---------------------
