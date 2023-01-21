@@ -149,6 +149,8 @@ We will respect each other’s need for personal space and alone time, and
 will make an effort to establish a balance between time spent together
 and time spent apart.
 
+This means that all parties in the relationship will respect each other's need for personal space and alone time, and will make an effort to establish a balance between time spent together and time spent apart. This can help to ensure that both parties have the time and space they need to pursue their own interests and hobbies, and also to recharge and maintain their own sense of self. It can also help to prevent feelings of suffocation or resentment that can arise from spending too much time together. By respecting each other's need for personal space and alone time, and striving for balance, it can help to maintain a healthy and fulfilling relationship in the long-term. It can also help to build a sense of trust and understanding between the partners and can foster a deeper level of intimacy and connection.
+
 Social Media and Technology
 ---------------------------
 
