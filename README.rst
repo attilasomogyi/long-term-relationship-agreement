@@ -216,6 +216,8 @@ Support
 We will support and encourage each other in our personal and
 professional goals.
 
+   This means that all parties in the relationship will support and encourage each other in their personal and professional goals. This can include things like providing emotional support, offering practical assistance, and being understanding of the time and energy required to pursue these goals. By supporting and encouraging each other, it can help to ensure that both parties feel heard and respected in the relationship and can help to prevent misunderstandings or hurt feelings. It can also help to maintain a healthy balance between the needs of the relationship and the needs of each individual. By supporting and encouraging each other's goals, it can also help to build trust and understanding between the partners and can foster a deeper level of intimacy and connection in the long-term. It can also help to create a sense of shared purpose and identity within the relationship, and can help to foster a deeper level of respect and admiration for one another.
+
 Honesty
 -------
 
