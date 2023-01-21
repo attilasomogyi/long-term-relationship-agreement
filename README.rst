@@ -240,6 +240,8 @@ Time Management
 We will make an effort to manage our time effectively and balance our
 relationship with our other responsibilities and commitments.
 
+   This means that all parties in the relationship will make an effort to manage their time effectively and balance their relationship with their other responsibilities and commitments. This can include things like scheduling regular time for the relationship, being mindful of each other's schedules, and being understanding of each other's other responsibilities and commitments. By managing time effectively and balancing the relationship with other responsibilities and commitments, it can help to ensure that both parties feel heard and respected in the relationship, and can help to prevent misunderstandings or hurt feelings. It can also help to maintain a healthy balance between the needs of the relationship and the needs of each individual. By being mindful of each other's schedules and being understanding of other responsibilities and commitments, it can also help to build trust and understanding between the partners and can foster a deeper level of intimacy and connection in the long-term. It can also help to create a sense of shared purpose and identity within the relationship and can help to foster a deeper level of respect and admiration for one another.
+
 Shared Values
 -------------
 
