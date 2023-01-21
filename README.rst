@@ -193,18 +193,22 @@ We will make an effort to engage in shared activities that we both enjoy
 and will also respect each other’s interests and passions.
 
    This means that all parties in the relationship will make an effort to engage in shared activities that they both enjoy, and will also respect each other's interests and passions. This can include things like hobbies, sports, and other forms of entertainment. By engaging in shared activities, it can help to strengthen the bond between the couple, and can provide opportunities for fun and enjoyment. It can also help to create a sense of shared purpose and identity within the relationship. By also respecting each other's interests and passions, it can help to ensure that each person is able to pursue their own personal growth and fulfillment, and can help to maintain a healthy balance between the needs of the relationship and the needs of each individual. By making an effort to engage in shared activities and respecting each other's interests and passions, it can help to create a healthy and fulfilling long-term relationship.
-   
+
 Problem Solving
 ---------------
 
 We will approach problem-solving in a constructive way, and will avoid
 blaming, criticizing or attacking each other.
 
+   This means that all parties in the relationship will approach problem-solving in a constructive way, and will avoid blaming, criticizing or attacking each other. This can include things like actively listening to each other's perspectives, being open to compromise and finding mutually beneficial solutions. By avoiding blaming, criticizing or attacking each other, it can help to prevent conflicts from escalating into larger problems. It can also help to maintain a healthy and respectful relationship by not personalizing the problem and focusing on the solution. By approaching problem-solving in a constructive way, it can also help to build trust and understanding between the partners and can foster a deeper level of intimacy and connection in the long-term. It can also help to prevent resentment, power struggles and build a more resilient relationship.
+
 Decision Making
 ---------------
 
 We will make decisions together, taking into account each other’s needs
 and opinions.
+
+   This means that all parties in the relationship will make decisions together, taking into account each other's needs and opinions. This can include things like discussing and considering each other's perspectives, seeking common ground and finding mutually beneficial solutions. By making decisions together, it can help to ensure that both parties feel heard and respected in the relationship and can help to prevent misunderstandings or hurt feelings. It can also help to maintain a healthy balance between the needs of the relationship and the needs of each individual. By taking into account each other's needs and opinions, it can also help to build trust and understanding between the partners and can foster a deeper level of intimacy and connection in the long-term. Making decisions together can also help to create a sense of shared ownership and responsibility in the relationship.
 
 Support
 -------
