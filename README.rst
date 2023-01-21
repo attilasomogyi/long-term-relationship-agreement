@@ -184,12 +184,16 @@ Relationship Boundaries
 We will establish and respect boundaries in our relationship, including
 physical, emotional, and mental boundaries.
 
+   This means that all parties in the relationship will establish and respect boundaries in the relationship, including physical, emotional, and mental boundaries. Physical boundaries can include things such as personal space, touch, and privacy. Emotional boundaries can include how much personal information is shared, and how much emotional support is given or expected. Mental boundaries can include how much time and energy is given to the relationship, and what kind of support is given for personal growth and development. By establishing and respecting these boundaries, it can help to ensure that both parties feel comfortable and respected in the relationship, and can help to prevent misunderstandings or hurt feelings. It can also help to maintain a healthy balance between the needs of the relationship and the needs of each individual. By having clear boundaries, it can also help to build a deeper level of trust and understanding between the partners and can foster a deeper level of intimacy and connection.
+
 Shared Activities
 -----------------
 
 We will make an effort to engage in shared activities that we both enjoy
 and will also respect each other’s interests and passions.
 
+   This means that all parties in the relationship will make an effort to engage in shared activities that they both enjoy, and will also respect each other's interests and passions. This can include things like hobbies, sports, and other forms of entertainment. By engaging in shared activities, it can help to strengthen the bond between the couple, and can provide opportunities for fun and enjoyment. It can also help to create a sense of shared purpose and identity within the relationship. By also respecting each other's interests and passions, it can help to ensure that each person is able to pursue their own personal growth and fulfillment, and can help to maintain a healthy balance between the needs of the relationship and the needs of each individual. By making an effort to engage in shared activities and respecting each other's interests and passions, it can help to create a healthy and fulfilling long-term relationship.
+   
 Problem Solving
 ---------------
 
