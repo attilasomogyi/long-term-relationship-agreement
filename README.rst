@@ -224,6 +224,8 @@ Honesty
 We will be honest with each other in all aspects of our relationship,
 and will not keep secrets or hide information from one another.
 
+   This means that all parties in the relationship will be honest with each other in all aspects of their relationship, and will not keep secrets or hide information from one another. This includes being truthful about thoughts, feelings, and actions, and being open and transparent about any concerns or issues that may arise. By being honest with each other, it can help to build trust and understanding between the partners and can foster a deeper level of intimacy and connection in the long-term. It also helps to ensure that both parties are on the same page, and it can help to prevent misunderstandings or hurt feelings. Honesty is also a fundamental aspect of maintaining a healthy and fulfilling relationship, and it can help to prevent conflicts from arising or escalating. Keeping secrets and hiding information can damage the relationship and erode trust over time. By being honest with one another, it can help to create a more secure and healthy environment for the relationship to grow.
+
 Forgiveness
 -----------
 
