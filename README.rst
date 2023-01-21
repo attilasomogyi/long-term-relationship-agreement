@@ -140,6 +140,8 @@ We will discuss and establish a plan for maintaining a healthy and
 satisfying sexual relationship, including discussing any boundaries or
 needs we may have.
 
+This means that all parties in the relationship will discuss and establish a plan for maintaining a healthy and satisfying sexual relationship. This includes open communication about any boundaries or needs each person may have. This can help to ensure that both parties feel comfortable and respected in the sexual aspect of the relationship, and can help to prevent misunderstandings or hurt feelings. It can also be an opportunity to discuss any concerns or issues that may arise and work together to find solutions. This kind of open and honest communication can be essential for maintaining a healthy and satisfying sexual relationship in a long-term partnership. It can also foster a deeper level of trust, intimacy and understanding between the partners. By discussing and establishing a plan for maintaining a healthy sexual relationship, it can help to ensure that both parties feel satisfied and fulfilled in this aspect of the relationship.
+
 Personal Space
 --------------
 
