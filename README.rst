@@ -168,6 +168,8 @@ We will establish a plan for how we will handle conflicts that may arise
 in our relationship, including a process for discussing and resolving
 issues in a calm and respectful manner.
 
+This means that all parties in the relationship will establish a plan for how they will handle conflicts that may arise in their relationship. This plan may include a process for discussing and resolving issues in a calm and respectful manner. This can help to ensure that conflicts are dealt with in a constructive way that can lead to a resolution, rather than escalating into a larger problem. It can also help to prevent conflicts from becoming personal or emotional, and it can help to maintain a healthy and respectful relationship. By having a plan in place, it can also help to prevent the conflicts from becoming patterns that can damage the relationship in the long term. It can also help both partners to feel more secure, heard and understood in the relationship. Having a plan for resolving conflicts can also help to build a stronger and more resilient relationship over time.
+
 Relationship Counseling
 -----------------------
 
