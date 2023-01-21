@@ -232,6 +232,8 @@ Forgiveness
 We will practice forgiveness in our relationship and will make an effort
 to let go of past hurts and mistakes.
 
+   This means that all parties in the relationship will practice forgiveness and make an effort to let go of past hurts and mistakes. This can include actively working towards forgiveness, and choosing not to hold on to resentment or bitterness towards one another. It also means that when mistakes or hurt happens, both parties will work to understand, acknowledge and learn from them. Forgiveness is an important aspect of maintaining a healthy and fulfilling relationship, and it can help to prevent conflicts from arising or escalating. Holding on to past hurts and mistakes can prevent the relationship from moving forward and can create a negative and toxic environment. By practicing forgiveness, it can help to create a more positive and healthy environment for the relationship to grow, and can foster a deeper level of trust and understanding between the partners. It can also help to create a more resilient relationship, where both parties feel safe to express themselves and grow.
+
 Time Management
 ---------------
 
