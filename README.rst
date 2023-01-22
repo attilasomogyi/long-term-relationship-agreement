@@ -1,6 +1,7 @@
 Long Term Relationship Agreement
 ================================
 .. sectnum::
+   :prefix: \`content\`
    :suffix: .
 .. contents:: Table of Articles
    :depth: 2
@@ -265,6 +266,8 @@ Vacation and Time off
 We will make an effort to plan and take vacations and time off together,
 and will also respect each other’s need for alone time or time with
 friends and family.
+
+   This statement means that in a long term relationship, both parties will make an effort to plan and take vacations and time off together and will also respect each other's need for alone time or time with friends and family. This includes planning regular trips and vacations together and being mindful of each other's schedules and time off. It also means that both parties will understand and respect the need for each other to have some alone time or spend time with friends and family. This balance is important for the relationship, as it allows for shared experiences and memories, and also allows for personal growth and individuality. This can help to strengthen the bond between the couple, and can provide opportunities for fun and enjoyment. It can also help to create a sense of shared purpose and identity within the relationship, and can help to foster a deeper level of respect and admiration for one another.
 
 Personal Growth and Development
 -------------------------------
