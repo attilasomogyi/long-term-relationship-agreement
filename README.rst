@@ -311,6 +311,8 @@ One partner may take some time away from the relationship, either
 physically or emotionally, in order to process their feelings and
 address the issues.
 
+   This means that in a long-term relationship, one partner may take some time away from the relationship, either physically or emotionally, in order to process their feelings and address the issues. This can include taking a break from spending time together, or taking some time to focus on personal growth and self-reflection. It could also include taking some time to focus on physical, mental or emotional well-being. This time away can allow a person to clear their mind, process their feelings, and come up with a plan to address any issues they may be facing in the relationship. By taking time away, it allows both partners to have some space and perspective, which can lead to better understanding and communication when they come back together. It's important that the time away is taken in a healthy and open manner, with clear communication about the reasons for it and a plan for when and how to come back together. It's also important that both parties respect each other's decision and space during this time.
+
 Setting Boundaries
 ~~~~~~~~~~~~~~~~~~
 
