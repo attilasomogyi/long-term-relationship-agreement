@@ -384,11 +384,15 @@ Changing the Dynamics of the Relationship
 Both partners can agree to change the dynamics of the relationship and
 work on building a new and healthier relationship.
 
+   This means that in a long-term relationship, both partners can agree to change the dynamics of the relationship and work on building a new and healthier relationship. This can involve re-evaluating the current dynamics of the relationship, identifying patterns of behavior or communication that are not working, and making a conscious effort to change them. This can include things like setting new boundaries, establishing new communication patterns, and making a commitment to building a stronger, more positive relationship. This approach can be helpful as it allows both partners to take an active role in shaping the future of the relationship, and can lead to a deeper level of understanding, trust, and intimacy. It also allows for the possibility of rekindling the passion and love that was present in the beginning of the relationship. It's important to remember that change is not easy, it requires effort, commitment, and patience from both partners. It's also important that both partners are willing to be open, honest and vulnerable with each other, and to actively work together to build a new and healthier relationship.
+
 Written Agreements
 ~~~~~~~~~~~~~~~~~~
 
 Both partners can agree to written agreements that outline specific
 behaviors, expectations and consequences in case of non-compliance
+
+   This means that in a long-term relationship, both partners can agree to written agreements that outline specific behaviors, expectations, and consequences in case of non-compliance. This can include agreements on things like communication, finances, household responsibilities, and other areas of the relationship where there may be a need for clear expectations and consequences. These agreements can be helpful in establishing clear boundaries and expectations, and can help prevent misunderstandings or hurt feelings. It can also help to ensure that both partners are on the same page regarding important issues, and can provide a sense of security and stability in the relationship. It also helps to establish a level of accountability and responsibility for both partners. It's important to note that these agreements should be created in a collaborative manner, and should be based on mutual respect, understanding, and trust. It's also important to make sure that the agreements are realistic and attainable, and that both partners are willing to commit to them. It's also important to re-evaluate these agreements periodically and make adjustments as needed.
 
 Collaborative Problem Solving
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
