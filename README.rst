@@ -345,29 +345,6 @@ addresses the concerns of both parties.
 
    This means that in a long-term relationship, partners may work together to find a compromise or solution that addresses the concerns of both parties. This can include finding a middle ground, making concessions or finding a solution that addresses the needs of both partners. This approach is important when there are differences of opinions, goals or preferences that may be causing strain in the relationship. By working together to find a compromise or solution, it can help to ensure that both parties feel heard and respected in the relationship, and can help to prevent misunderstandings or hurt feelings. It can also help to maintain a healthy balance between the needs of the relationship and the needs of each individual. By working together to find a compromise or solution, it can also help to build trust and understanding between the partners and can foster a deeper level of intimacy and connection in the long-term. It can also help to create a sense of shared purpose and identity within the relationship and can help to foster a deeper level of respect and admiration for one another.
 
-Financial Sanctions
-~~~~~~~~~~~~~~~~~~~
-
-In a marriage or partnership, one partner may decide to withhold
-financial support or change the financial arrangements of the
-relationship as a way of addressing issues.
-
-   This means that in a long-term relationship such as marriage or partnership, one partner may decide to withhold financial support or change the financial arrangements of the relationship as a way of addressing issues. This can include things like withholding money, closing joint bank accounts, or making changes to the way bills are paid. This approach can be used to exert control or leverage in the relationship or as a way to address financial issues or concerns. This type of behavior can be harmful and can cause a lot of stress and tension in the relationship, affecting not only the finances but also the emotional and mental well-being of both partners. This kind of behavior should be avoided and if it happens, it's important to address the issues and concerns in a calm and respectful manner, and try to find a solution that addresses the needs and concerns of both partners. It's important to have open and honest communication about the finances and to make sure that both partners are on the same page and understand each other's needs and concerns.
-
-Social Sanctions
-~~~~~~~~~~~~~~~~
-
-One partner may limit their social interactions with the other as a way
-of addressing issues in the relationship.
-
-   This means that in a long-term relationship, one partner may limit their social interactions with the other as a way of addressing issues in the relationship. This can include things like spending less time together, avoiding certain activities or events, or limiting communication. This approach can be used as a way to create distance or as a way to express dissatisfaction with the relationship. This kind of behavior can be harmful as it can lead to feelings of isolation, rejection, and emotional distress. It can also negatively impact the trust and intimacy in the relationship. If a partner is feeling the need to limit social interactions, it's important to address the underlying issues and concerns in a calm and respectful manner. It's also important to establish clear communication and mutual understanding of each other's needs and concerns. It's also important to try to find a solution that addresses the needs and concerns of both partners.
-
-Emotional Sanctions
-~~~~~~~~~~~~~~~~~~~
-
-One partner may limit their emotional investment in the relationship or
-withdraw emotionally as a way of addressing issues.
-
 Agreeing on a Plan
 ~~~~~~~~~~~~~~~~~~
 
