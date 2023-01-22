@@ -368,11 +368,15 @@ Apology
 One partner can apologize for the wrongs committed and take steps to
 make amends.
 
+   This means that in a long-term relationship, one partner can apologize for the wrongs committed and take steps to make amends. This can include expressing remorse for hurtful actions or words, taking responsibility for one's behavior, and taking steps to repair the damage caused. This can include things like offering a sincere apology, making restitution, or making a commitment to change one's behavior. This approach can be helpful as it can help to repair the trust and intimacy in the relationship and can foster a deeper level of understanding and connection. It also shows the willingness of one partner to take accountability for their actions and make things right, which can help to build respect, trust and intimacy in the relationship. It's important to remember that apologies should be sincere, and that making amends is not just about saying sorry but it's also about taking actions to show that you are sorry and that you will change your behavior. This can help to bring the relationship to a more healthy and positive level.
+
 With Forgiveness
 ~~~~~~~~~~~~~~~~
 
 One partner can forgive the other and work on moving forward in the
 relationship.
+
+   This means that in a long-term relationship, one partner can forgive the other and work on moving forward in the relationship. Forgiveness is the act of letting go of resentment, anger, or a desire for revenge towards someone who has wronged you. In a relationship, forgiveness is an important step for both partners to take in order to move on from past hurts and mistakes. It allows both partners to let go of negative feelings and focus on rebuilding trust and intimacy in the relationship. Forgiveness does not mean forgetting the hurtful actions or words, it means acknowledging that they happened and choosing to let go of the negative feelings associated with it. It also involves actively working towards healing, rebuilding trust and intimacy, and creating a positive and healthy future together. Forgiveness is an essential step in moving forward in a relationship and it can help both partners to focus on the present and the future, and move past the past. It can also help to create a deeper level of understanding, empathy, and connection between the partners.
 
 Changing the Dynamics of the Relationship
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
