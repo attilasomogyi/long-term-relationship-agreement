@@ -390,7 +390,7 @@ Written Agreements
 ~~~~~~~~~~~~~~~~~~
 
 Both partners can agree to written agreements that outline specific
-behaviors, expectations and consequences in case of non-compliance
+behaviors, expectations and consequences in case of non-compliance.
 
    This means that in a long-term relationship, both partners can agree to written agreements that outline specific behaviors, expectations, and consequences in case of non-compliance. This can include agreements on things like communication, finances, household responsibilities, and other areas of the relationship where there may be a need for clear expectations and consequences. These agreements can be helpful in establishing clear boundaries and expectations, and can help prevent misunderstandings or hurt feelings. It can also help to ensure that both partners are on the same page regarding important issues, and can provide a sense of security and stability in the relationship. It also helps to establish a level of accountability and responsibility for both partners. It's important to note that these agreements should be created in a collaborative manner, and should be based on mutual respect, understanding, and trust. It's also important to make sure that the agreements are realistic and attainable, and that both partners are willing to commit to them. It's also important to re-evaluate these agreements periodically and make adjustments as needed.
 
@@ -398,7 +398,9 @@ Collaborative Problem Solving
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 
 Both partners can work together to identify the problem, and come up
-with possible solutions and determine what works best for both of them
+with possible solutions and determine what works best for both of them.
+
+   This means that in a long-term relationship, both partners can work together to identify the problem, come up with possible solutions, and determine what works best for both of them. This approach involves active problem-solving, and it allows both partners to have a say in the process and feel heard and respected in the relationship. It can help to prevent misunderstandings or hurt feelings by clearly defining what the issues are and what steps will be taken to address them. It also helps to build trust and understanding between the partners, and can foster a deeper level of intimacy and connection in the long-term. This kind of collaboration and cooperation can also create a sense of shared purpose and identity within the relationship and can help to foster a deeper level of respect and admiration for one another. This can help to improve the relationship and bring it to a more healthy and positive level. It's important to remember that this process can take time and that both partners need to be open, honest, and willing to listen to each other's perspectives. It's also important to be patient, flexible, and willing to try new things to see what works best for both partners.
 
 Establishing Trust
 ~~~~~~~~~~~~~~~~~~
