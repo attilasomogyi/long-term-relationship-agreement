@@ -274,11 +274,15 @@ Personal Growth and Development
 We will encourage and support each other’s personal growth and
 development, including pursuing hobbies, education, and career goals
 
+   This means that in a long-term relationship, both parties will encourage and support each other's personal growth and development. This can include things like pursuing hobbies, education, and career goals. This means actively encouraging and supporting each other to explore new interests, take classes or pursue educational opportunities, and advance in their careers. By encouraging and supporting each other's personal growth and development, it can help to ensure that both parties feel heard and respected in the relationship, and can help to prevent misunderstandings or hurt feelings. It can also help to maintain a healthy balance between the needs of the relationship and the needs of each individual. By supporting each other's personal growth, it can also help to build trust and understanding between the partners and can foster a deeper level of intimacy and connection in the long-term. It can also help to create a sense of shared purpose and identity within the relationship and can help to foster a deeper level of respect and admiration for one another.
+
 Fun and Leisure
 ---------------
 
 We will make an effort to incorporate fun and leisure activities in our
 relationship and will also respect each other’s interests and passions.
+
+   This means that in a long-term relationship, both parties will make an effort to incorporate fun and leisure activities in the relationship and will also respect each other's interests and passions. This can include things like finding activities that both partners enjoy, encouraging each other to try new things, and respecting each other's individual hobbies and interests. By incorporating fun and leisure activities, it can help to strengthen the bond between the couple, and can provide opportunities for fun and enjoyment. It can also help to create a sense of shared purpose and identity within the relationship. By respecting each other's interests and passions, it can help to ensure that each person is able to pursue their own personal growth and fulfillment, and can help to maintain a healthy balance between the needs of the relationship and the needs of each individual. By incorporating fun and leisure activities and respecting each other's interests and passions, it can help to create a healthy and fulfilling long-term relationship.
 
 With Conflict Resolution
 ------------------------
@@ -286,6 +290,8 @@ With Conflict Resolution
 We will establish a plan for how we will handle conflicts that may arise
 in our relationship, including a process for discussing and resolving
 issues in a calm and respectful manner.
+
+   This means that in a long-term relationship, both parties will establish a plan for how they will handle conflicts that may arise, including a process for discussing and resolving issues in a calm and respectful manner. This can include things like setting ground rules for communication, establishing a safe space to have difficult conversations, and agreeing on specific strategies to deescalate conflicts. By having a plan and process in place for handling conflicts, it can help to ensure that both parties feel heard and respected in the relationship, and can help to prevent misunderstandings or hurt feelings. It can also help to maintain a healthy balance between the needs of the relationship and the needs of each individual. By having a process for discussing and resolving issues in a calm and respectful manner, it can also help to build trust and understanding between the partners and can foster a deeper level of intimacy and connection in the long-term. It can also help to create a sense of shared purpose and identity within the relationship and can help to foster a deeper level of respect and admiration for one another.
 
 Sanctions in case of non-compliance with the Agreement
 ------------------------------------------------------
