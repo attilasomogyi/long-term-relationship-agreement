@@ -1,7 +1,7 @@
 Long Term Relationship Agreement
 ================================
 .. sectnum::
-.. contents:: Table of Contents
+.. contents:: Table of Articles
    :depth: 2
 
 A relationship agreement is a document that outlines the expectations,
