@@ -360,6 +360,8 @@ Social Sanctions
 One partner may limit their social interactions with the other as a way
 of addressing issues in the relationship.
 
+   This means that in a long-term relationship, one partner may limit their social interactions with the other as a way of addressing issues in the relationship. This can include things like spending less time together, avoiding certain activities or events, or limiting communication. This approach can be used as a way to create distance or as a way to express dissatisfaction with the relationship. This kind of behavior can be harmful as it can lead to feelings of isolation, rejection, and emotional distress. It can also negatively impact the trust and intimacy in the relationship. If a partner is feeling the need to limit social interactions, it's important to address the underlying issues and concerns in a calm and respectful manner. It's also important to establish clear communication and mutual understanding of each other's needs and concerns. It's also important to try to find a solution that addresses the needs and concerns of both partners.
+
 Emotional Sanctions
 ~~~~~~~~~~~~~~~~~~~
 
