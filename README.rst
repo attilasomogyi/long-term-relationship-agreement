@@ -319,6 +319,8 @@ Setting Boundaries
 One partner may set clear boundaries and communicate them to the other
 in order to establish a more healthy and positive relationship.
 
+   This means that in a long-term relationship, one partner may set clear boundaries and communicate them to the other in order to establish a more healthy and positive relationship. Setting boundaries refers to communicating what is and isn't acceptable behavior in the relationship, and what the partner feels comfortable with. This includes things like physical, emotional, and mental boundaries. This can include things like needing alone time, setting limits on the use of technology, or requesting certain types of communication. By setting and communicating clear boundaries, it can help to ensure that both parties feel heard and respected in the relationship, and can help to prevent misunderstandings or hurt feelings. It can also help to maintain a healthy balance between the needs of the relationship and the needs of each individual. By setting and communicating clear boundaries, it can also help to build trust and understanding between the partners and can foster a deeper level of intimacy and connection in the long-term. It can also help to create a sense of shared purpose and identity within the relationship and can help to foster a deeper level of respect and admiration for one another.
+
 Counseling or Therapy
 ~~~~~~~~~~~~~~~~~~~~~
 
