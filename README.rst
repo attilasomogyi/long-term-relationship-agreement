@@ -352,6 +352,8 @@ In a marriage or partnership, one partner may decide to withhold
 financial support or change the financial arrangements of the
 relationship as a way of addressing issues.
 
+   This means that in a long-term relationship such as marriage or partnership, one partner may decide to withhold financial support or change the financial arrangements of the relationship as a way of addressing issues. This can include things like withholding money, closing joint bank accounts, or making changes to the way bills are paid. This approach can be used to exert control or leverage in the relationship or as a way to address financial issues or concerns. This type of behavior can be harmful and can cause a lot of stress and tension in the relationship, affecting not only the finances but also the emotional and mental well-being of both partners. This kind of behavior should be avoided and if it happens, it's important to address the issues and concerns in a calm and respectful manner, and try to find a solution that addresses the needs and concerns of both partners. It's important to have open and honest communication about the finances and to make sure that both partners are on the same page and understand each other's needs and concerns.
+
 Social Sanctions
 ~~~~~~~~~~~~~~~~
 
