@@ -1,7 +1,7 @@
 Long Term Relationship Agreement
 ================================
 .. sectnum::
-   :prefix: .
+   :suffix: .
 .. contents:: Table of Articles
    :depth: 2
 
