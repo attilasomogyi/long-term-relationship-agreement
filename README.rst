@@ -406,7 +406,9 @@ Establishing Trust
 ~~~~~~~~~~~~~~~~~~
 
 One partner may work on rebuilding trust in the relationship by being
-transparent, reliable, and accountable for their actions
+transparent, reliable, and accountable for their actions.
+
+   This means that in a long-term relationship, one partner may work on rebuilding trust in the relationship by being transparent, reliable, and accountable for their actions. Rebuilding trust can be a difficult and time-consuming process, but it is essential for a healthy and positive relationship. Transparency means being open and honest with your partner about your thoughts, feelings, and actions. This can include being honest about your past, your present, and your future plans. Being reliable means doing what you say you will do and following through on commitments. This can include being dependable, dependable and being there for your partner when they need you. Being accountable for your actions means taking responsibility for your words and actions, and being willing to make amends if you have hurt your partner. By being transparent, reliable, and accountable, one partner can demonstrate to the other that they are trustworthy, that they are committed to the relationship, and that they are willing to put in the effort to rebuild trust. This can help to re-establish trust and intimacy, and can bring the relationship to a more healthy and positive level.
 
 Ending the Relationship
 ~~~~~~~~~~~~~~~~~~~~~~~
