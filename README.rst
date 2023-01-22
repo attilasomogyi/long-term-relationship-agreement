@@ -1,6 +1,6 @@
 Long Term Relationship Agreement
 ================================
-
+.. sectnum::
 .. contents:: Table of Contents
    :depth: 2
 
