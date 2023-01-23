@@ -1,3 +1,10 @@
+.. meta:
+   :author: Artificial Intelligence
+   :description: A relationship agreement is a document that outlines the expectations, responsibilities, and boundaries for a romantic partnership. It can be a useful tool for setting a foundation for a healthy and successful relationship. Below is a sample relationship agreement that can be customized to fit the specific needs of a couple.
+   :generator: Artificial Intelligence
+   :keywords: relationship agreement, relationship agreement template, relationship agreement sample, relationship agreement example
+   :robots: index, follow
+   
 Long Term Relationship Agreement
 ================================
 .. sectnum::
